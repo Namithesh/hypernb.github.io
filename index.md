@@ -8,3 +8,4 @@ Trees do not eat their own fruit.
 Clouds do not swallow their own rain. 
 What great ones have is always for the benefit of others.
 ```
+<meta http-equiv="refresh" content="1;url=http://namithesh.pw/" />
