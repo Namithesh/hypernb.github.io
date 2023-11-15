@@ -1,1 +1,1 @@
-magic behind namithesh.pw
+magic behind [namithesh.pw](https://namithesh.pw)
